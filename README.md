@@ -1,1 +1,1 @@
-👋 Sup, I’m Henry
+I’m Henry
